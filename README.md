@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OyasumiOrge
+- 👀 I’m interested in Music in general, anime / mangas, video gaming & programmation
+- 🌱 I’m currently learning Python
+- 📫 How to reach me : Oyasumi Orge#6675 on discord.
